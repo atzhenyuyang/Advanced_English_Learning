@@ -4,9 +4,11 @@
 
 I am sure we can work something out. 我认为一定有解决办法             
 We can't let this client down. 我们不能让这个客户失望              
-create this from ground up. 从底部往上建立            
+create this from ground up. 从底部往上建立                  
 
-
+We will guide you through the journey.         
+This will bring you ahead of the pack 这会使你领先别人一步           
+phenomenal 非凡的             
 
 ### 职场英语           
 I will take off my first ticket. 我将要开始我的第一个任务              
@@ -18,5 +20,6 @@ It is an all-hands-on-deck effort. 需要动员全部的人员
 
 It is more about technical exploration.
 
-Yes and no. 分两面说，同意和反对
+Yes and no. 分两面说，同意和反对               
 
+It's gonna be jumble 会很混乱          
